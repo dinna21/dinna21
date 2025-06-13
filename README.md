@@ -66,9 +66,9 @@ As a tech enthusiast, I’m on a journey to master the tools and technologies th
 
 ## 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-link-here/)  
+- 💼 [LinkedIn][(https://www.linkedin.com/in/your-link-here/)](https://www.linkedin.com/in/dinura-ransika-23b9b7266/)  
 - 🌐 Portfolio: *Coming Soon*  
-- 📧 dinuraxxxx@example.com *(replace with your email)*
+- 📧 ransikadinura2002@gmail.com 
 
 ---
 
